@@ -1,1 +1,1 @@
-Charlize Theron's transformative performance as serial killer Aileen Wuornos in "Monster" (2003) earned her the Academy Award for Best Actress.
+The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
