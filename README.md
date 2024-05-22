@@ -1,1 +1,1 @@
-The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
+Fans of "Game of Thrones" are known for their passionate dedication, creating fan art, cosplay, and online forums to discuss theories and analysis.
