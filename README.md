@@ -1,1 +1,1 @@
-Fans of "Game of Thrones" are known for their passionate dedication, creating fan art, cosplay, and online forums to discuss theories and analysis.
+The theory of R+L=J, suggesting Jon Snow's true parentage, was confirmed in the sixth season, validating years of speculation among fans.
