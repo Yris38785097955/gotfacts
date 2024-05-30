@@ -1,1 +1,1 @@
-Arya Stark's journey from a young girl seeking revenge to a skilled assassin is a central arc of the series, portrayed by Maisie Williams.
+The show is known for its morally ambiguous characters and willingness to subvert traditional fantasy tropes.
