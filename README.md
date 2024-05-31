@@ -1,1 +1,1 @@
-The show is known for its morally ambiguous characters and willingness to subvert traditional fantasy tropes.
+The show's legacy extends beyond television, with spin-off projects and potential prequels in development.
