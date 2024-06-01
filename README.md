@@ -1,1 +1,1 @@
-The show's legacy extends beyond television, with spin-off projects and potential prequels in development.
+The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
