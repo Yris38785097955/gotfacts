@@ -1,1 +1,1 @@
-"Jurassic World" (2015) breathed new life into the "Jurassic Park" franchise, becoming one of the highest-grossing films of all time.
+"Spirited Away" (2001), directed by Hayao Miyazaki, became the first non-English language film to win the Academy Award for Best Animated Feature.
