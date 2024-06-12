@@ -1,1 +1,1 @@
-Arya Stark's journey from a young girl seeking revenge to a skilled assassin is a central arc of the series, portrayed by Maisie Williams.
+"Game of Thrones" has been credited with revitalizing interest in the fantasy genre in television and popular culture.
