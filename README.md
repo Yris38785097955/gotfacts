@@ -1,1 +1,1 @@
-"Get Out" (2017), directed by Jordan Peele, combined horror and social commentary to create a groundbreaking and thought-provoking film.
+"Donnie Darko" (2001), directed by Richard Kelly, gained a cult following for its enigmatic storyline and memorable performances, including Jake Gyllenhaal's.
