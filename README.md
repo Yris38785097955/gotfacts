@@ -1,1 +1,1 @@
-The success of "Game of Thrones" led to a wide range of merchandise, including action figures, clothing, and collectible items.
+Bollywood film "Lagaan" (2001), directed by Ashutosh Gowariker, received widespread acclaim and became India's official entry for the Academy Award for Best Foreign Language Film.
