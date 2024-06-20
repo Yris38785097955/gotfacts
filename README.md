@@ -1,1 +1,1 @@
-Bollywood film "Lagaan" (2001), directed by Ashutosh Gowariker, received widespread acclaim and became India's official entry for the Academy Award for Best Foreign Language Film.
+"City of God" (2002), a Brazilian crime drama directed by Fernando Meirelles, garnered critical praise for its gritty portrayal of life in the slums of Rio de Janeiro.
