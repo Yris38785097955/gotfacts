@@ -1,1 +1,1 @@
-"City of God" (2002), a Brazilian crime drama directed by Fernando Meirelles, garnered critical praise for its gritty portrayal of life in the slums of Rio de Janeiro.
+The series premiered on HBO on April 17, 2011, and concluded on May 19, 2019, spanning eight seasons.
