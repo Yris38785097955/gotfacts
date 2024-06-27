@@ -1,1 +1,1 @@
-The series premiered on HBO on April 17, 2011, and concluded on May 19, 2019, spanning eight seasons.
+"Game of Thrones" has been credited with revitalizing interest in the fantasy genre in television and popular culture.
