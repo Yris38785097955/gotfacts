@@ -1,1 +1,1 @@
-Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
+The series inspired a wave of fantasy television projects, including adaptations of other epic fantasy book series.
