@@ -1,1 +1,1 @@
-The series inspired a wave of fantasy television projects, including adaptations of other epic fantasy book series.
+"Game of Thrones" won the Primetime Emmy Award for Outstanding Drama Series four times, in 2015, 2016, 2018, and 2019.
