@@ -1,1 +1,1 @@
-"Game of Thrones" won the Primetime Emmy Award for Outstanding Drama Series four times, in 2015, 2016, 2018, and 2019.
+The theory of R+L=J, suggesting Jon Snow's true parentage, was confirmed in the sixth season, validating years of speculation among fans.
