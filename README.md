@@ -1,1 +1,1 @@
-The production team faced challenges, such as adapting Martin's sprawling narrative and handling large-scale battle sequences.
+"Spirited Away" (2001), directed by Hayao Miyazaki, became the first non-English language film to win the Academy Award for Best Animated Feature.
