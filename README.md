@@ -1,1 +1,1 @@
-"Spirited Away" (2001), directed by Hayao Miyazaki, became the first non-English language film to win the Academy Award for Best Animated Feature.
+Christopher Nolan's "Memento" (2000) captivated audiences with its innovative narrative structure, playing scenes in reverse to mirror the protagonist's memory loss.
