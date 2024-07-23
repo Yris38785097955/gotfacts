@@ -1,1 +1,1 @@
-The series has inspired tourism to filming locations, such as Dubrovnik, Croatia, which served as the backdrop for King's Landing.
+"La La Land" (2016) famously had its Best Picture win mistakenly announced at the Oscars, only for "Moonlight" to be revealed as the actual winner.
