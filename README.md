@@ -1,1 +1,1 @@
-"Game of Thrones" has been referenced in numerous other media, including television shows, films, and even political discourse.
+Fans of "Game of Thrones" developed elaborate theories about the identity of Azor Ahai, the fate of Jon Snow, and other unresolved plot points.
