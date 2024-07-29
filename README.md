@@ -1,1 +1,1 @@
-Fans of "Game of Thrones" developed elaborate theories about the identity of Azor Ahai, the fate of Jon Snow, and other unresolved plot points.
+"Fahrenheit 9/11" (2004), directed by Michael Moore, became the highest-grossing documentary of all time and sparked debate over its political content.
