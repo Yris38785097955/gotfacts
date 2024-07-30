@@ -1,1 +1,1 @@
-"Fahrenheit 9/11" (2004), directed by Michael Moore, became the highest-grossing documentary of all time and sparked debate over its political content.
+Cersei Lannister, portrayed by Lena Headey, is one of the most complex and compelling antagonists in the show, known for her ruthless pursuit of power.
