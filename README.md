@@ -1,1 +1,1 @@
-Cersei Lannister, portrayed by Lena Headey, is one of the most complex and compelling antagonists in the show, known for her ruthless pursuit of power.
+Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
