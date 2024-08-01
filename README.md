@@ -1,1 +1,1 @@
-Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
+The series finale, "The Iron Throne," aired on May 19, 2019, marking the conclusion of the epic saga.
